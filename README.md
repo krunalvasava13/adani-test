@@ -1,4 +1,7 @@
 # adani-test
 
-dwhtjgvrnjhih eh we
-gjkwerntiwehgwe
+Name : vasava krunal ghanshyambhai
+Degree : M.Tech IT
+College : IIIT ALLAHABAD
+
+
